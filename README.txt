@@ -1,2 +1,2 @@
 Hi I am Amir suhail
-and I am from Muzaffarnagar UP 251001
+and I am from Muzaffarnagar U.P. 251001
